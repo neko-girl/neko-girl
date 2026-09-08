@@ -13,5 +13,5 @@ I bring an abundance of cuteness and charm to the GitHub world. When I'm not nap
 🗣️ Languages: I am a polyglot who can speak Chinese, English and Spanish, but I cannot understand people and their iwyational emotionalism.<br>
 
 # Let's Connect!
-If u wanna write me, u can send a message to mya [Telegwam Pwofile](https://t.me/Liumali) and I'm going to report u.❤️
+If u wanna write me, u can send a message to mya [Telegwam Pwofile](https://t.me/LiuMeiYu) and I'm going to report u.❤️
 ### Nya Nya~
